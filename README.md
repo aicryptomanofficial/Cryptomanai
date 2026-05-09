@@ -34,12 +34,12 @@ To revolutionize the crypto world with Artificial Intelligence and build strong 
 ### 🚀 AI Coin Launching Soon...
 Stay tuned for our next big AI-powered crypto revolution.
 
----
+-crypto man ai 🪙 
 
 ## 📫 Connect With Us
 - Twitter/X: https://x.com/ShadabAlam98778  
 - Telegram: Coming Soon  
 
----
+--https://t.me/CryptomanAiteam
 
 ⭐ Follow us and join the AI Crypto Revolution 🚀
